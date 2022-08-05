@@ -11,5 +11,5 @@ You can click the Preview link to take a look at your changes.
 
 
 hello,everyone!Nice to meet you!
-I wanna become one great game player and one perfect game designer!
+
 Lets go !
